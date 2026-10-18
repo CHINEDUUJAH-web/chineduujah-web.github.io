@@ -1,1 +1,1 @@
-# chineduujah-web-.-github.io
+# chineduujah-web.github.io
